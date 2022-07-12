@@ -7,7 +7,6 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/bianca-barbuto-lima/](https://www.linkedin.com/in/bianca-barbuto-lima/)
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
